@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @almeida52333 (rata)
+- 👀 I’m just a curious student... i think
